@@ -87,7 +87,7 @@ Weiterführende Fragen zum Förderkreis und Kooperationswünsche richten Sie bit
     Prof. Dr. Harald Müller
     Feldbergstr. 25
     35796 Weinbach
-    dr.mueller@wertermittlung.uni-giessen.de
+    dr.mueller.wertermittlung@t-online.de
 
 
 Die Ziele des Vereins erfahren Sie aus der [Satzung](res/satzung.pdf)
