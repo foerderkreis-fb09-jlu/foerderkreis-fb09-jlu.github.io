@@ -82,13 +82,16 @@ Kontakt
 
 Weiterführende Fragen zum Förderkreis und Kooperationswünsche richten Sie bitte an:
 
-    Förderkreis Agrarwissenschaften, Ökotrophologie und Umweltmanagement Gießen e. V.
+Förderkreis Agrarwissenschaften, Ökotrophologie und Umweltmanagement Gießen e. V.
 
-    Prof. Dr. Harald Müller
-    Feldbergstr. 25
-    35796 Weinbach
-    dr.mueller.wertermittlung@t-online.de
+Prof. Dr. Harald Müller
+Feldbergstr. 25
+35796 Weinbach
+dr.mueller.wertermittlung@t-online.de
 
+und
+
+info@foerderkreis-fb09-jlu.de
 
 Die Ziele des Vereins erfahren Sie aus der [Satzung](res/satzung.pdf)
 
